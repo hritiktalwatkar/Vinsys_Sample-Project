@@ -1,1 +1,0 @@
-# Vinsys_Sample-Project
